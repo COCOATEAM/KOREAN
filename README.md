@@ -1,4 +1,0 @@
-KOREAN
-======
-
-KOREAN
